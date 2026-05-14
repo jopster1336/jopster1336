@@ -1,6 +1,6 @@
 # :satellite: Howdy
 
-<p>I'm somewhat capable of coding 19 year old dude from Russia; i make mods for Garry's Mod, and work on my own games on ROBLOX.</p>
+<p>Game Producer from Russia; i made mods for Garry's Mod, and work on my own games on Roblox</p>
 <p>You can reach me at Discord: @jopster1336</p>
 
 # :mortar_board: Skills
